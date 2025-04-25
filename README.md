@@ -12,3 +12,5 @@
 - What to do next: Add an LLM in order to generate something...
 
 - Always love you, mom (づ￣ 3￣)づ😙
+
+- Hope mom would let me to buy 5090 (●'◡'●)
